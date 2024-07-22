@@ -2,7 +2,7 @@
 - 👀 I’m interested in Wed Development
 - 🌱 I’m currently learning HTML & CSS
 - 💞️ I’m looking to collaborate on ...
-- 📫 Check out mt twitter account @AbioTechster
+- 📫 Check out my twitter account @AbioTechster
 - 😄 Pronouns: He/His/Him
 - ⚡ Fun fact: Exploring new places
 
